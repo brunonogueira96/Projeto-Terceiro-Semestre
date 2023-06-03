@@ -15,3 +15,5 @@ Membros
 • Vinicius
 
 • Guilherme 
+
+• Lucas Pizzolio de Sousa Mendes - RA> 3022102692
