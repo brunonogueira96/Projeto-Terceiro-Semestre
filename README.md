@@ -10,7 +10,7 @@ Membros
 
 • Guilherme Henrique dos Santos - RA> 3022100001
 
-• Max 
+• Max Ferreira de Moura - RA> 3022107465
 
 • Vinicius
 
