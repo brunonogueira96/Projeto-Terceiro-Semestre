@@ -12,6 +12,6 @@ Membros
 
 • Max Ferreira de Moura - RA> 3022107465
 
-• Vinicius
+• Vinicius da Silva Almeida - RA> 3022101684
 
 • Lucas Pizzolio de Sousa Mendes - RA> 3022102692
